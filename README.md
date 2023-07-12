@@ -1,2 +1,4 @@
 # -TUGGABL-LIGHT-HTML-CSS-JS
 ![Screenshot 2023-07-13 013223](https://github.com/Narayan-Thakare/-TUGGABL-LIGHT-HTML-CSS-JS/assets/113063658/4846a25d-1b77-40ee-a31a-e6311bba687a)
+WHEN YOU PULL THE CABLE
+![Screenshot 2023-07-13 013243](https://github.com/Narayan-Thakare/-TUGGABL-LIGHT-HTML-CSS-JS/assets/113063658/72ec2d4a-92d1-4278-8304-51e0a61932fc)
